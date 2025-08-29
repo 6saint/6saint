@@ -8,6 +8,7 @@
 <div align="center"><img width="30" height="30" alt="IMG_1779" src="https://github.com/user-attachments/assets/db2a3103-5310-46b4-b327-c902492f1760" /><img src="https://komarev.com/ghpvc/?username=6saint&label=　　demonic　　&color=970e0e&style=plastic" alt="6saint" /><img width="30" height="30" alt="IMG_1779" src="https://github.com/user-attachments/assets/efb52679-7805-4b8e-89d7-a356a2c4b2ec" />
 
 　<div align="center"> check out my dumb [girlfriend](github.com/windmillie) too
+ 
  　
 　<div align="center"> [ata](https://devilishly.atabook.org/)⠀ rentry⠀ dni list
   
